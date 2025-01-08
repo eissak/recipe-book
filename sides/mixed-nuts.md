@@ -2,7 +2,8 @@
 
 ## Ingredients
 
-- Nuts
+- Nut 1
+- Nut 2
 
 ## Instructions
 
