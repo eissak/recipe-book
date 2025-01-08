@@ -15,4 +15,4 @@
 
 ## Instructions
 
-Mix ingredients in a bowl. This makes it really tasty.
+Mix ingredients in a bowl. This makes it really tasty and nutritious.
